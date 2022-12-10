@@ -65,4 +65,4 @@ Festa reveals that the treasure in Bullet's possession is an Eternal Pose that c
 
 Shots fired by Usopp then destroy the rest of the colossus. Luffy and Bullet engage in a fistfight, and Luffy defeats him. Crocodile and Lucci attempt to obtain the Eternal Pose, but Luffy destroys it, claiming he will find the One Piece with his crew without help. Festa mourns the failure of his plans, and is defeated and captured by Sabo. Luffy reunites with his crew and they attempt to escape along with the other pirates, but are confronted by the second Buster Call fleet. However, Smoker contacts his superiors to say there is no longer a need for the Buster Call, and Sabo helps the pirates pass through the fleet safely with his abilities. It is revealed that Roger disapproved of the Eternal Pose and threw it away, believing that the One Piece could not be obtained by someone who would rely on it. Luffy's crew is shocked that he destroyed the Eternal Pose, except for Usopp. Luffy claims that if that they had taken it, they would have missed out on many great adventures.
 
-![alt text](OP_Stampede.jpg)
+![alt text](OP_Stampede.jpg) 
